@@ -7,3 +7,4 @@ commanded to tail behind us in case this criminal resorted to violence. Just the
 used to bully and taunt me back in our school days? The same angry shots his eyes gave, the same ruffled hair dyed red, and I instantly realised that his facial features had not
 changed much either the closer I looked. He scrutinised my face simultaneously and I had an uneasy feeling that he could recognise me too. The anger in his eyes turned to
 mischief.
+"Hello Bob, long time no see," spat out the prisoner.
